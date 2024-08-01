@@ -9,7 +9,7 @@
 
 - 📫 How to contact me **danylo.godoy@gmail.com**
 
-- ⚡ Fun facts about me **I am a determined and focused learner, always seeking to improve my personal and professional performance. My problem-solving, teamwork, communication and proactive skills were developed during my 23 years as a radiology technician. I am currently in a career transition journey to the technology area, where I have had the opportunity to work with urban mobility application system configurations. This experience, combined with my curiosity and adaptability, allows me to quickly learn new technologies and deliver quality results.**
+- ⚡ Fun facts about me **I am a determined and focused learner, always seeking to improve my personal and professional performance. My problem-solving, teamwork, communication and proactive skills were developed during my 19 years as a radiology technician. I am currently in a career transition journey to the technology area, where I have had the opportunity to work with urban mobility application system configurations. This experience, combined with my curiosity and adaptability, allows me to quickly learn new technologies and deliver quality results.**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
